@@ -67,17 +67,17 @@ The top part of the run was probably the best part although there were some othe
 
 ![evan-ski](https://lh3.googleusercontent.com/pw/AP1GczNuezwiMalM9Qxpyoawj48YfXI_SOmS6FhDpCKiBfcIzizMJJgI6t8QIW4VZlGB91eSKAZok4vdnJhgX6mWSmAOkXjz3PDNKqD3WAHNStl8OcahkG56AxJh5TgOQNuwGuxPHsNYEvebCsPR464TIJfcuQ=w735-h1306-s-no?authuser=0)
 
-Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting we decided it would be more fun and safer to just rip back to the car -- after all we had already done over 6000' of gain so adding another climb didn't really seem necessary.
+Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting we decided it would be more fun and safer to just rip back to the car -- after all we had already done over 6500' of gain so adding another climb didn't really seem necessary.
 
 As we neared the end of the arm most of us tried to avoid a short uphill section by traversing around right but ended up in a section where the only option to continue would be to make a steep exposed traverse on hard crusty snow which only Henry took while the rest of us picked a couple different options for booting back to the ridge.
+
+![henry-over-pass](https://lh3.googleusercontent.com/pw/AP1GczMGa-ArsKmVCAZamCBNUC5qvbdqXsYY7wkH2oZGWCfK1sk22MZWbRsZ2wD-5jYu3oq-0ZKY0XhOJQeOx0f7MwBAwUVkql6miya25P_HCi2P0m_E4fTpAdT6AOkTDXobFyPtwG1fngRgw0gDQdq_LNB6AQ=w1278-h959-s-no?authuser=0)
+
 Having split into 4 different groups we all skied down to Cascade Pass and regrouped in around 20 minutes.
 
-<figure>
-  <img src="https://photos.fife.usercontent.google.com/pw/AP1GczMj12SLtkY_2uh8SwUM_4FWKErPe_zWpMEBoha1BY-jGih0srtgfv6NYw=w1278-h959-s-no?authuser=0" alt="henry-over-pass"/>
-  <figcaption>Looking down at Cascade Pass</figcaption>
-</figure>
-
 From Cascade Pass, we continued down to the car finding that the east aspects were not slushed out despite the low elevation as they hadn't gotten any morning sun so were still skiing pretty well. Getting through the avalanche debris didn't turn out to be too big of a problem as you could traverse past most of it and it had already softened up a good bit.
+
+It also appeared the shortcut we had thought of taking (skiing directly down from the arm where we had chosen to traverse) would probably have worked but without knowing that you would risk getting cliffed out and having to wallow back up a 500' slope.
 
 Getting back to the summer trailhead we found our cache of pre-mixed margaritas and finished up our beach day by doing the last bit of skiing to the end of the snow and hiking back to the cars.
 
