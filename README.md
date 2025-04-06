@@ -61,11 +61,12 @@ After around 15 minutes Henry decided that it wasn't quite possible to get up to
 ### The Long Run Down
 
 The first few turns were a bit firmer than expected considering how soft the snow had felt lower on the glacier which was probably a good sign that the snow lower down wouldn't be total mashed potatoes.
-Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting so we decided it would be more fun and safer to just rip back to the car.
+Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting we decided it would be more fun and safer to just rip back to the car -- after all we had already done over 6000' of gain so adding another climb didn't really seem necessary.
 
-As we neared the end of the arm most of us tried to avoid a short uphill section by traversing around right but ended up in a section where the only option to continue would be to make a steep exposed traverse on hard crusty snow which only Henry took while the rest of us struggled to boot back up to the ridge in a copule groups.
+As we neared the end of the arm most of us tried to avoid a short uphill section by traversing around right but ended up in a section where the only option to continue would be to make a steep exposed traverse on hard crusty snow which only Henry took while the rest of us picked a couple different options for booting back to the ridge.
+Having split into 4 different groups we all regrouped at Cascade Pass in around 20 minutes.
 
-After regrouping at Cascade Pass we continued down to the car finding that the east aspects were not as slushed out as you would expect as they hadn't gotten as much sun yet so were still skiing pretty well. Getting through the avalanche debris didn't turn out to be too big of a problem as you could traverse past most of it and it had already softened up a good bit.
+From Cascade Pass, we continued down to the car finding that the east aspects were not slushed out despite the low elevation as they hadn't gotten any morning sun so were still skiing pretty well. Getting through the avalanche debris didn't turn out to be too big of a problem as you could traverse past most of it and it had already softened up a good bit.
 
 Getting back to the summer trailhead we found our cache of pre-mixed margaritas and finished up our beach day by doing the last bit of skiing to the end of the snow and hiking back to the cars.
 
