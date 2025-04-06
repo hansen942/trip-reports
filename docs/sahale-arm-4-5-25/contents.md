@@ -62,7 +62,7 @@ After around 15 minutes Henry decided that it wasn't quite possible to get up to
 
 The first few turns were a bit firmer than expected considering how soft the snow had felt lower on the glacier which was probably a good sign that the snow lower down wouldn't be total mashed potatoes.
 
-![top-run](https://photos.app.goo.gl/46JUQwDsmH29ifss6)
+![top-run](IMG_5705.mp4)
 
 Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting we decided it would be more fun and safer to just rip back to the car -- after all we had already done over 6000' of gain so adding another climb didn't really seem necessary.
 
