@@ -34,7 +34,11 @@ The views were great!
 ### Racing up the Glacier
 
 After reaching the Sahale Camp we enjoyed an early lunch / snack.
-We admired the scenery spotting some people making the exposed traverse at the start of the Ptarmigan, which seemed quite bold considering the overhead hazard and exposure on a hot day like today.
+We admired the scenery which might be some of the best I have seen from the middle of an actual ski descent.
+
+![panorama-shot](https://lh3.googleusercontent.com/pw/AP1GczNV7S_641RHwI_2779qhhqDYbmW1UlxvarhHhDweeZTyAq7C4MVgy_nRtTA-39xTowEAmCQW93LD9SGlLColo7O3-rxNshiTLnyRg_L3PEHcvc7UAG5Gdu9gzOMtxTDwWUbugbhclpIWW3bhqEqbmTsBA=w1278-h304-s-no?authuser=0)
+
+We also spotted some tracks of people making the exposed traverse at the start of the Ptarmigan, which seemed quite bold considering the overhead hazard and exposure on a hot day like today.
 
 ![ptarmigan-tracks](https://lh3.googleusercontent.com/pw/AP1GczNFP4CYRyPo9IVMS6jNB3A97DtP-tqfGiSSD3a3woriuGbSV8WmM2lgkzROYdfNMPZptM5kYtn4tAT7130i8xBnme-APh5utuXp2MWVZMqCz4y3elP4B_q8r6AEdhK3OF4DSXYLMU-2m8yYzCz3JdKOQg=w980-h1306-s-no?authuser=0)
 
@@ -57,6 +61,9 @@ After around 15 minutes Henry decided that it wasn't quite possible to get up to
 ### The Long Run Down
 
 The first few turns were a bit firmer than expected considering how soft the snow had felt lower on the glacier which was probably a good sign that the snow lower down wouldn't be total mashed potatoes.
+
+![top-run](https://photos.app.goo.gl/46JUQwDsmH29ifss6)
+
 Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting we decided it would be more fun and safer to just rip back to the car -- after all we had already done over 6000' of gain so adding another climb didn't really seem necessary.
 
 As we neared the end of the arm most of us tried to avoid a short uphill section by traversing around right but ended up in a section where the only option to continue would be to make a steep exposed traverse on hard crusty snow which only Henry took while the rest of us picked a couple different options for booting back to the ridge.
