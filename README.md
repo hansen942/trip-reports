@@ -18,27 +18,27 @@ We immediately noticed that there was an ~20 mph breeze coming from the east whi
 
 There was a very large avalanche debris field which appears to have shed off the ridgeline east of Cascade Peak but it turned out not to be a major obstacle as a pre-existing skin track led us to the north side of the debris field where we could traverse unimpeded towards the pass.
 
-![approaching-cascade-pass](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipNT6ZLmcZwmL0lpP152ORBzA3FH-WQPMVexy3TB?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![approaching-cascade-pass](https://lh3.googleusercontent.com/pw/AP1GczOPqJJx-R7-LqSHYQ8mxoZ0i8l-zgV5uVaN9Od9I-wB4LIcpSz03QN8bQSNb0JOPv_QdLrLpF8zB3LNaW01oBxXV7HHbJgYTjImHo7o1cSIa1fMdtsiGpt_2o6PVw9NCX8DNPXv1xzoq1vD2T-zV7bqsg=w980-h1306-s-no?authuser=0)
 
 From here, we transitioned several times between skinning and setting a boot pack to get up to Cascade Pass and then up the first steep steps onto the Sahale Arm as the refrozen snow was still quite firm which would have made for tricky skinning in the steeper sections but was fortunately almost perfect for booting.
 
 The wind was still quite strong but didn't seem to be getting worse and we hoped it was just because of the rising sun and would dissipate later in the day.
 
-![booting-above-cascade-pass](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipMTQDbj5mDbZuWdWaHDgK1BAF7djCqNgoIkP-vF?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![booting-above-cascade-pass](https://lh3.googleusercontent.com/pw/AP1GczP2NWf7qYCBe7bU898u3dtNns1oINge6Hjobw_etxvTOaEqisBXz802vm5Xl4Mfe4jw9270C_bLdeaikJak-sBmwgeMvdL5kXpRizo-kILCaGGnsOC2KUxAXD1WpHSHFTHDZO990LhiUIaRWitPp8yHmw=w980-h1306-s-no?authuser=0)
 
 Soon we were up on the arm and making good progress skinning on the more mellow ridgeline towards Sahale Peak although the snow was still quite stiff so I definitely appreciated bringing my ski crampons and brought out my ice axe for some sections where a long slide could be possible if you slipped.
 The views were great!
 
-![regrouping-before-mixup](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipOHlbabSvGsukapbG9PGMeO3HI0zdw2OZ6Gi_VD?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![regrouping-before-mixup](https://lh3.googleusercontent.com/pw/AP1GczPXc2m3JMr_aWg9PoCEJV6IFxswdAN15FLyD5IsQbDVpCY2H5CxwcNCc2kvczdUrpcOcYop30XbV5L7cWJKeN0eqy-MGo-SbYYFPEqcFZNPWX5TUjmYjut0GfDQHyflLirHn1kcZiZp7Bge9ogCa28xQg=w980-h1306-s-no?authuser=0)
 
-![sahale-in-sight](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipONi-OGYu0p6T_5pIP301eO76Y89WIwP0YqILG2?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![sahale-in-sight](https://lh3.googleusercontent.com/pw/AP1GczMP4JY4lG5DSl7R5P_dtyGa9pzC8N4xZvUATZdM6MNjongh3rWHrR5IUUdxcajvBw2ybuqoRC8kCh_rMiME0kzHm7slW3I9orqo2BKzcu4S6qM6nqFymmdzDoHhuCUE8peC7UWX4hyNxsG7xWqHuK0Y-A=w980-h1306-s-no?authuser=0)
 
 ### Racing up the Glacier
 
 After reaching the Sahale Camp we enjoyed an early lunch / snack.
 We admired the scenery spotting some people making the exposed traverse at the start of the Ptarmigan, which seemed quite bold considering the overhead hazard and exposure on a hot day like today.
 
-![ptarmigan-tracks](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipNCS0HvIcFxJJBGqi8ZV3K8uovqc8q0CzoLc19T?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![ptarmigan-tracks](https://lh3.googleusercontent.com/pw/AP1GczNFP4CYRyPo9IVMS6jNB3A97DtP-tqfGiSSD3a3woriuGbSV8WmM2lgkzROYdfNMPZptM5kYtn4tAT7130i8xBnme-APh5utuXp2MWVZMqCz4y3elP4B_q8r6AEdhK3OF4DSXYLMU-2m8yYzCz3JdKOQg=w980-h1306-s-no?authuser=0)
 
 We left around the same time as another group arrived at camp and we all skinned up the glacier together.
 The wind had died down and it suddenly felt quite hot in the sun; I finally took off my windbreaker wearing nothing but a thin sun hoodie and sweating in my ski pants even with the vents wide open.
@@ -52,7 +52,7 @@ After traversing out right off of the glacier we found a nice spot to transition
 We had been referring to the day as a "beach trip" considering the warm weather and a few people came prepared with jorteralls and short running shorts in order to ski down in style.
 We performed an involved transition in the not-completely-flat terrain to remove our pants to get into costume and were surprisingly warm wearing very little clothing at 8500' as the wind had completely died.
 
-![preparing-to-ski](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipOg_CGNodiOzdUOgbp3gfky7ZB3UitWl79bKG2B?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![preparing-to-ski](https://lh3.googleusercontent.com/pw/AP1GczOinSOBAfVJ741aYz8x7p4E2gIZ8PM4YEkBcc5Fmb1M8fSF8DeoNMTKU68JBfIVkKlU0Om62ssh3-kCqArfaOUuiGlBm4B8tu8aXAs095p8Qsb9-poYo2ohatYWv3IiNm_p1by36_rb3MqvzvEY4OUd0A=w980-h1306-s-no?authuser=0)
 
 After around 15 minutes Henry decided that it wasn't quite possible to get up to the summit without more equipment and time as it appeared the best approach would have been to traverse around climber's right of the summit block to reach the northern side scramble route but this would involve traversing steep, loose snow with deadly exposure for around 20 feet and the rest of the group was already getting ready to ski.
 
@@ -67,7 +67,7 @@ After regrouping at Cascade Pass we continued down to the car finding that the e
 
 Getting back to the summer trailhead we found our cache of pre-mixed margaritas and finished up our beach day by doing the last bit of skiing to the end of the snow and hiking back to the cars.
 
-![marg-time](https://photos.google.com/share/AF1QipP_DvncJJ2bve2ylQcwphppTmSlkxBz-wgqhmsQQwpNIX6Y9lkLEcvJlZ_qc_10dw/photo/AF1QipPHfdPUkHOm-VmyR4xFo7NdRZvt2yPXC6hjNSUe?key=TmlfVmlGeEtMWlpqR0lVSHlHdzNweTZpWkdIcWNR)
+![marg-time](https://lh3.googleusercontent.com/pw/AP1GczPrHKl5KU8Wo0KshRJiTazc9cazO_7jlTcfwv6tdq1qToW_hOUta6kzff2VeaIklOAx2npBqU8zjygUIvHy13yotCJXiuA0fKNy03zAvBfGOAB1mAbqy2JO2pGDybXGRqdvGrEskfShZtOgItS-wSY2kw=w1278-h959-s-no?authuser=0)
 
 On the drive out it was 70 degrees and sunny!
 It definitely feels like summer now, although the next week should be a return to more wintry conditions with snow in the forecast.
