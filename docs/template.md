@@ -2,4 +2,3 @@
 
 I intend to make this a page where I log some trip reports mainly so I can read them later.
 
-1. [Sahale Arm -- "The Beach" - 04/06/2025](sahale-arm-4-5-25/contents.md)
