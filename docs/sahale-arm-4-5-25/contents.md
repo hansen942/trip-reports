@@ -85,5 +85,8 @@ Getting back to the summer trailhead we found our cache of pre-mixed margaritas 
 
 ![marg-time](https://lh3.googleusercontent.com/pw/AP1GczPrHKl5KU8Wo0KshRJiTazc9cazO_7jlTcfwv6tdq1qToW_hOUta6kzff2VeaIklOAx2npBqU8zjygUIvHy13yotCJXiuA0fKNy03zAvBfGOAB1mAbqy2JO2pGDybXGRqdvGrEskfShZtOgItS-wSY2kw=w1278-h959-s-no?authuser=0)
 
+Overall the tour was 10.5 miles long, had 6700' of gain, and took 10 hours including time spent hiking the road.
+
 On the drive out it was 70 degrees and sunny!
 It definitely feels like summer now, although the next week should be a return to more wintry conditions with snow in the forecast.
+
