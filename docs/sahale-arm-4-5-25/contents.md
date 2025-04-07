@@ -4,7 +4,7 @@
 
 After getting good snow in the Tatoosh Range the previous weekend there had been low snowfall through the week and high temperatures were forecast for Friday and Saturday before clouds and some snow would roll in on Sunday.
 Scouting the forecast it appeared that the southern volcanoes might be too windy but up north it appeared it would be pleasant 40 degrees even at 8000 feet with no wind.
-After floating the idea of doing the Eldorado Glacier we eventually settled on doing the Sahale Arm as we weren't sure how bad the creek and boulder field crossing shenanigans would be on the apporach to Eldo.
+After floating the idea of doing the Eldorado Glacier (which has been on my list for a couple years) we eventually settled on doing the Sahale Arm as we weren't sure how bad the creek and boulder field crossing shenanigans would be on the apporach to Eldo.
 
 We set out Friday evening and found the road in excellent shape up to a gate at MP 21 (as stated on the USFS website) where we set up camp and tried to get some sleep before our planned 4 AM departure.
 After waking up at 3:30 we were a bit sluggish getting out of camp and actually left at 4:50 but this would probably still be early enough to harvest the corn / hot pow.
@@ -30,6 +30,10 @@ The views were great!
 ![regrouping-before-mixup](https://lh3.googleusercontent.com/pw/AP1GczPXc2m3JMr_aWg9PoCEJV6IFxswdAN15FLyD5IsQbDVpCY2H5CxwcNCc2kvczdUrpcOcYop30XbV5L7cWJKeN0eqy-MGo-SbYYFPEqcFZNPWX5TUjmYjut0GfDQHyflLirHn1kcZiZp7Bge9ogCa28xQg=w980-h1306-s-no?authuser=0)
 
 ![sahale-in-sight](https://lh3.googleusercontent.com/pw/AP1GczMP4JY4lG5DSl7R5P_dtyGa9pzC8N4xZvUATZdM6MNjongh3rWHrR5IUUdxcajvBw2ybuqoRC8kCh_rMiME0kzHm7slW3I9orqo2BKzcu4S6qM6nqFymmdzDoHhuCUE8peC7UWX4hyNxsG7xWqHuK0Y-A=w980-h1306-s-no?authuser=0)
+
+We also had great views of Eldorado Peak. I've definitely got to get back out to ski that.
+
+![eldo](https://lh3.googleusercontent.com/pw/AP1GczNWeHVATzRCTenNVrCBTIbpS0isyLX_67cs__ihmjgGuz-xAN0SoUOuOcigWbNo4oCh8wfDIzgRq1gYXb6jd0_nrLyPR1i6vZ7GnH7scclJFPQHS908Zhzt0sCWSwRhty8JZJULYurDivusb6ZuIvRV9w=w980-h1306-s-no?authuser=0)
 
 ### Racing up the Glacier
 
