@@ -64,17 +64,17 @@ We enjoyed a nice run down the rolling upper north face of Plummer then dropped 
 ### Exit
 
 From here we tried to remember where to go and remembered that you should traverse right while descending through the annoyingly tight and somewhat steep trees.
-Eventually we came to a glade where we skied back down the creek and found the non-overnight party's tracks which led us to a snow bridge across the creek and skinned our way back to the car.
-We had skied enjoyed 3 great runs for a total of 4800' with all fresh tracks and felt it was an excellent ski day.
+Eventually we came to a glade where we skied back down to the creek and found the day-trip party's tracks which led us to a snow bridge across the creek and skinned our way back to the car.
+We had enjoyed 3 great runs for a total of 4800' with all fresh tracks and felt it was an excellent ski day.
 
 ## Paradise Camping
 
-As the Longmire gate closes at 5 PM each day all other visitors to this area had mostly left already so we felt we had the place to ourselves as we rolled up to the Paradise Visitor Center area.
+As the Longmire gate closes at 5 PM each day most other visitors to this area had left already so we felt we had the place to ourselves as we rolled up to the Paradise Visitor Center area.
 
 ![paradise-parking-lot-gear](https://lh3.googleusercontent.com/pw/AP1GczOCboCf9uJVBQB_HxqrxMrEsllBDb24A-kAcQouYaPMBO5-p5UxTj4uJ0dWssPUwwa7kNt15kFCYUxXDtKOxQXZ_6epp07w0RiZM_wE6kUtvLDffmqm0q8KWseBlbJpkOv0iNGJ9eB8J_oiaSDRb8BnVw=w1278-h959-s-no?authuser=0)
 
-After the tour we had felt too tired but it was beginning to hit now and the idea of loading all our stuff up to go camp in the Edith Creek Area in preparation for our Paradise Glacier Tour felt somewhat unappealing.
-Instead, we decided to hang out in Gabriel's car for a long while and procrastinate actually heading off to camp.
+During the tour we hadn't felt too tired but it was beginning to hit now and the idea of loading all our stuff up to go camp in the Edith Creek Area in preparation for our Paradise Glacier tour felt somewhat unappealing.
+Instead, we decided to hang out in Gabriel's car for a long while and procrastinate actually settin gup camp.
 
 We were somewhat overladen bringing all of our touring and overnight gear to camp because we had known in advance that the camp wouldn't be too far from the car.
 
@@ -111,7 +111,8 @@ After traversing for a mile and a half we needed to ascend a ridge to reach the 
 After ~100' of booting Gabriel and I went to take a look at the glacier but as Gabriel poked his head over the top we both were getting hit with 30+ mph winds and considering the poor snow conditions it just didn't seem worth it to continue.
 
 We decided to reverse course with Ellie and Gabriel downclimbing this section while Abby and I felt more confident on our skis.
-After regrouping we headed back ot the car, traversing back past the creek and passing many snowshoers on the winter trail.
+After regrouping we headed back to the car, traversing back past the creek and passing many snowshoers on the winter trail.
+One of them asked how the skiing was to which I said it was "windy and icy" and she replied that she had been to Killington last week.
 
 ## Conclusion
 
