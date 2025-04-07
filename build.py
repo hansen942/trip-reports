@@ -25,6 +25,6 @@ with open(os.path.join(docs_dir, 'index.md'), 'w+') as output:
             if metadata.get("end_date") is not None:
                 date_str += " to "
                 end_date = datetime.date.fromisoformat(metadata["end_date"])
-                date_str += date.strftime("%a %d %b %Y")
+                date_str += end_date.strftime("%a %d %b %Y")
             line = str(trip_count) + ". " + "[" + metadata["name"] + " - " + date_str + "](" + contents_filename + ")\n"
             output.write(line)
