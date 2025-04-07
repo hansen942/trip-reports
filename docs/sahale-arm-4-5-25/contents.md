@@ -1,6 +1,6 @@
-## Sahale Arm April 5, '25 -- "The Beach"
+# Sahale Arm April 5, '25 -- "The Beach"
 
-### Introduction
+## Introduction
 
 After getting good snow in the Tatoosh Range the previous weekend there had been low snowfall through the week and high temperatures were forecast for Friday and Saturday before clouds and some snow would roll in on Sunday.
 Scouting the forecast it appeared that the southern volcanoes might be too windy but up north it appeared it would be pleasant 40 degrees even at 8000 feet with no wind.
@@ -9,7 +9,7 @@ After floating the idea of doing the Eldorado Glacier (which has been on my list
 We set out Friday evening and found the road in excellent shape up to a gate at MP 21 (as stated on the USFS website) where we set up camp and tried to get some sleep before our planned 4 AM departure.
 After waking up at 3:30 we were a bit sluggish getting out of camp and actually left at 4:50 but this would probably still be early enough to harvest the corn / hot pow.
 
-### Up to the Arm
+## Up to the Arm
 
 After walking the road a couple miles we were left wondering why they didn't just leave the gate open since you could have easily driven another mile and a half at least. Anyhow, we cached our shoes (and some celebratory beverages) near the summer trailhead and transitioned to skis.
 We immediately noticed that there was an ~20 mph breeze coming from the east which we did not expect and which might be even stronger on the pass.
@@ -35,7 +35,7 @@ We also had great views of Eldorado Peak. I've definitely got to get back out to
 
 ![eldo](https://lh3.googleusercontent.com/pw/AP1GczNWeHVATzRCTenNVrCBTIbpS0isyLX_67cs__ihmjgGuz-xAN0SoUOuOcigWbNo4oCh8wfDIzgRq1gYXb6jd0_nrLyPR1i6vZ7GnH7scclJFPQHS908Zhzt0sCWSwRhty8JZJULYurDivusb6ZuIvRV9w=w980-h1306-s-no?authuser=0)
 
-### Racing up the Glacier
+## Racing up the Glacier
 
 After reaching the Sahale Camp we enjoyed an early lunch / snack.
 We admired the scenery which might be some of the best I have seen from the middle of an actual ski descent.
@@ -52,7 +52,7 @@ We could feel that the snow was quickly softening up although it was still only 
 
 Henry charged ahead as he hoped to quickly tag the summit and knew we would be eager to start skiing once we got to the top.
 
-### Getting Ready to Rip
+## Getting Ready to Rip
 After traversing out right off of the glacier we found a nice spot to transition near some rocks and Henry investigated the summit block along with the other group.
 
 We had been referring to the day as a "beach trip" considering the warm weather and a few people came prepared with jorteralls and short running shorts in order to ski down in style.
@@ -62,7 +62,7 @@ We performed an involved transition in the not-completely-flat terrain to remove
 
 After around 15 minutes Henry decided that it wasn't quite possible to get up to the summit without more equipment and time as it appeared the best approach would have been to traverse around climber's right of the summit block to reach the northern side scramble route but this would involve traversing steep, loose snow with deadly exposure for around 20 feet and the rest of the group was already getting ready to ski.
 
-### The Long Run Down
+## The Long Run Down
 
 The first few turns were a bit firmer than expected considering how soft the snow had felt lower on the glacier which was probably a good sign that the snow lower down wouldn't be total mashed potatoes.
 The top part of the run was probably the best part although there were some other moderately steep faces farther down the arm too.
