@@ -69,6 +69,8 @@ The top part of the run was probably the best part although there were some othe
 
 Pretty soon we were down at Sahale Camp and Gabriel proposed we ski down to Doubtful Lake to get a longer run but this would involve climbing back up to the arm and as we could see some wet loose activity already starting we decided it would be more fun and safer to just rip back to the car -- after all we had already done over 6500' of gain so adding another climb didn't really seem necessary.
 
+![group-shot](https://lh3.googleusercontent.com/pw/AP1GczPxUwtyEFFdlpGtMe5w0pk3qF1a3PFxt-amMOwrrDczKR7QKbLsSZq3Cg7nfT5xC8CQ7tKqy1473kK6i4GLL3etKFM0IyZZHmXGPo4SfD6i_5q5XSjsH5KqaGMgxI-YwJcqe9uEdNmg7F38hmAdHsx6cA=w974-h1306-s-no?authuser=0)
+
 As we neared the end of the arm most of us tried to avoid a short uphill section by traversing around right but ended up in a section where the only option to continue would be to make a steep exposed traverse on hard crusty snow which only Henry took while the rest of us picked a couple different options for booting back to the ridge.
 
 ![henry-over-pass](https://lh3.googleusercontent.com/pw/AP1GczMGa-ArsKmVCAZamCBNUC5qvbdqXsYY7wkH2oZGWCfK1sk22MZWbRsZ2wD-5jYu3oq-0ZKY0XhOJQeOx0f7MwBAwUVkql6miya25P_HCi2P0m_E4fTpAdT6AOkTDXobFyPtwG1fngRgw0gDQdq_LNB6AQ=w1278-h959-s-no?authuser=0)
