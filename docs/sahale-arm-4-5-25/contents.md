@@ -24,12 +24,14 @@ The wind was still quite strong but didn't seem to be getting worse and we hoped
 
 ![booting-above-cascade-pass](https://lh3.googleusercontent.com/pw/AP1GczP2NWf7qYCBe7bU898u3dtNns1oINge6Hjobw_etxvTOaEqisBXz802vm5Xl4Mfe4jw9270C_bLdeaikJak-sBmwgeMvdL5kXpRizo-kILCaGGnsOC2KUxAXD1WpHSHFTHDZO990LhiUIaRWitPp8yHmw=w980-h1306-s-no?authuser=0)
 
-Soon we were up on the arm and making good progress skinning on the more mellow ridgeline towards Sahale Peak although the snow was still quite stiff so I definitely appreciated bringing my ski crampons and brought out my ice axe for some sections.
+Soon we were up on the arm and could see the objective. 
+
+![sahale-in-sight](https://lh3.googleusercontent.com/pw/AP1GczMP4JY4lG5DSl7R5P_dtyGa9pzC8N4xZvUATZdM6MNjongh3rWHrR5IUUdxcajvBw2ybuqoRC8kCh_rMiME0kzHm7slW3I9orqo2BKzcu4S6qM6nqFymmdzDoHhuCUE8peC7UWX4hyNxsG7xWqHuK0Y-A=w980-h1307-s-no?authuser=0)
+
+We started making good progress skinning on the more mellow ridgeline towards Sahale Peak although the snow was still quite stiff so I definitely appreciated bringing my ski crampons and brought out my ice axe for some sections.
 The views were great!
 
 ![regrouping-before-mixup](https://lh3.googleusercontent.com/pw/AP1GczPXc2m3JMr_aWg9PoCEJV6IFxswdAN15FLyD5IsQbDVpCY2H5CxwcNCc2kvczdUrpcOcYop30XbV5L7cWJKeN0eqy-MGo-SbYYFPEqcFZNPWX5TUjmYjut0GfDQHyflLirHn1kcZiZp7Bge9ogCa28xQg=w980-h1306-s-no?authuser=0)
-
-![sahale-in-sight](https://lh3.googleusercontent.com/pw/AP1GczMP4JY4lG5DSl7R5P_dtyGa9pzC8N4xZvUATZdM6MNjongh3rWHrR5IUUdxcajvBw2ybuqoRC8kCh_rMiME0kzHm7slW3I9orqo2BKzcu4S6qM6nqFymmdzDoHhuCUE8peC7UWX4hyNxsG7xWqHuK0Y-A=w980-h1306-s-no?authuser=0)
 
 We also had great views of Eldorado Peak. I've definitely got to get back out to ski that.
 
