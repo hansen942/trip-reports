@@ -8,7 +8,7 @@ It appeared the weather would stay reasonably cool through Saturday but it was d
 We considered Crystal but ultimately decided to go for the Tatoosh on Saturday with the plan being to then spend the night and then perhaps tour on the Paradise Glacier on Sunday as west winds were expected but the glacier should be somewhat in the lee.
 The forecast called for 10 to 16 inches in the Tatoosh and 14 to 20 at Paradise so it sounded like a good time and with a crew of 7 it would be a party!
 
-The forecast was for only a moderate avalanche hazard with wind slabs a possibility but a very low likelihood of a large wet slab also looming over us.
+The forecast was for only a moderate avalanche hazard with wind slabs a possibility but with a very low likelihood of a large wet slab also looming over us.
 We looked at Gabriel's [Tatoosh Run List](https://caltopo.com/m/BM0CB) and targeted some lower-angle runs on glades and bowls that would avoid overhead hazard where wet slabs could potentially trigger naturally.
 
 ## Tatoosh Tour
@@ -89,7 +89,7 @@ Unfortunately as we checked NOAA for tomorrow's weather we saw that the wind had
 
 ## Paradise "Tour"
 
-Waking up around 7 AM we packed up camp then skied back down the Paradise parking lot as we could then use the bathroom, refill water bottles, and grab some items we had forgotten in the car.
+Waking up around 7 AM we packed up camp then skied back down to the Paradise parking lot as we could then use the bathroom, refill water bottles, etc.
 En route I dodged a snow cat which was clearing out the entrance to the winter route.
 In hindsight it was kind of nonsensical to schlepp all our stuff up to a camp 300 feet from the parking lot.
 
@@ -116,5 +116,5 @@ One of them asked how the skiing was to which I said it was "windy and icy" and 
 
 ## Conclusion
 
-Despite a disappointing Sunday tour attempt this trip was great because the skiing was excellent and hanging out with the group on Saturday night was fun.
+Despite a disappointing Sunday tour attempt this trip was great because the skiing was excellent Saturday and hanging out with the group on Saturday night was fun.
 In reality I was pretty tired and satisfied from the Saturday tour so wasn't too disappointed it didn't work out.
