@@ -26,7 +26,7 @@ The wind was still quite strong but didn't seem to be getting worse and we hoped
 
 Soon we were up on the arm and could see the objective. 
 
-![sahale-in-sight](https://lh3.googleusercontent.com/pw/AP1GczMP4JY4lG5DSl7R5P_dtyGa9pzC8N4xZvUATZdM6MNjongh3rWHrR5IUUdxcajvBw2ybuqoRC8kCh_rMiME0kzHm7slW3I9orqo2BKzcu4S6qM6nqFymmdzDoHhuCUE8peC7UWX4hyNxsG7xWqHuK0Y-A=w980-h1307-s-no?authuser=0)
+![sahale-in-sight](https://lh3.googleusercontent.com/pw/AP1GczOOew-BnKIzdKlcpz2gfsD9TuQ4b6Au5BX2Fu59mrKfXhwhAhwk_yPfIcZNfzZ95mdzlC53VASyL19GuQwCp2FT8uE6FxaSc64VcNaANZ04wpYODWkqbKaj5pHjgjhWcNURStx2U6vutcRVZmiQ0oit6A=w980-h1307-s-no?authuser=0)
 
 We started making good progress skinning on the more mellow ridgeline towards Sahale Peak although the snow was still quite stiff so I definitely appreciated bringing my ski crampons and brought out my ice axe for some sections.
 The views were great!
