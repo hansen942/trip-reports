@@ -1,4 +1,4 @@
-# Sahale Arm April 5, '25 -- "The Beach"
+# Sahale Arm "The Beach" -- April 5, 2025
 
 ## Introduction
 

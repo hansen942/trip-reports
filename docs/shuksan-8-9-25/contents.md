@@ -1,4 +1,4 @@
-# Mt. Shuksan: Fisher Chimneys August 9th, 2025
+# Mt. Shuksan: Fisher Chimneys -- August 9th, 2025
 
 ## Introduction
 
