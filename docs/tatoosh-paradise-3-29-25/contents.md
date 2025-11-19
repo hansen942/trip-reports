@@ -41,7 +41,7 @@ I set the skin track and tried to find the best path through some tight trees as
 
 ![tree-skinning](https://lh3.googleusercontent.com/pw/AP1GczPqaYSq0Qxci04aTg77u0FbhU7uU-NFLaC45RrhPk-R-zqiVoKXFKG5p70tsTByYw_hQKVHe1r3ySw_OUXkrgNuCp9gmTjF-FJHqJoAhkTMk8JvYLxn6LRsQalBKdQNemWApCUL1ic29QZbVWW5qC6VQA=w1278-h962-s-no?authuser=0)
 
-After arriving at the col we scarfed down some lunc and Gabriel and I decided to head farther skier's left to get a steeper, somewhat longer run in as the rest of the group planned to descend from the col.
+After arriving at the col we scarfed down some lunch and Gabriel and I decided to head farther skier's left to get a steeper, somewhat longer run in as the rest of the group planned to descend from the col.
 The snow on the northern aspects felt much more cohesive and so to my surprise the entire run didn't lose its snow afte the first turn and we could enjoy some great skiing down Plummer's NE face.
 
 ![plummer-ne-tracks](https://lh3.googleusercontent.com/pw/AP1GczNAl153ULCchwVkXP4kSUGEz9jl6Gg9vwOgdt2AxaTV_gK8VY4qm8TWiAfpp_nhpiRB9wPU6AsKOGIOoAitOWds-LK8mg4ADAl6Sio4EzuSlSyF7tX7uVFo9LczdUeFScrk_zha7DzT88kEhnLnNJTXUQ=w980-h1306-s-no?authuser=0)
