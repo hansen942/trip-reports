@@ -27,7 +27,7 @@ with open(os.path.join(docs_dir, 'index.md'), 'w+') as output:
                 date_str += " to "
                 end_date = datetime.date.fromisoformat(metadata["end_date"])
                 date_str += end_date.strftime("%a %d %b %Y")
-            line = str(trip_count) + ". " + "[" + metadata["name"] + " - " + date_str + "](" + contents_filename + ")"
+            line = "## [" + metadata["name"] + " - " + date_str + "](" + contents_filename + ")"
             if metadata.get("image_link") is not None:
                 image_link = metadata["image_link"]
                 line += " ![thumbnail-" + str(trip_count) + "](" + image_link + ")"
